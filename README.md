@@ -1,3 +1,7 @@
+**不是挂！不是挂！不是挂！**\
+**不是mod!不是mod！不是mod!**\
+**一切合法合规**\
+
 使用方法：\
 前置设置\
 1）确保游戏截图保持文件夹为C:\Users\UserName\Documents\Escape from Tarkov\Screenshots\
